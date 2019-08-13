@@ -1,1 +1,4 @@
 # qanati
+Stock
+nati
+mekonan
